@@ -18,7 +18,6 @@ as well as all the other kickass CC0-licensed images at Unsplash (unsplash.com).
 Questions/comments/issues = just email or find me on Twitter. Have fun!
 
 AJ
-aj@lkn.io | @ajlkn
 
 
 The Scrolling Background:
